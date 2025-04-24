@@ -62,7 +62,7 @@
 
 ![image](https://github.com/user-attachments/assets/8e72755c-4509-4791-a2aa-e0b1ee21f19d)
 ![image](https://github.com/user-attachments/assets/50f32867-bf65-4e68-b4cf-e40c0cc9dc51)
-![image](https://github.com/user-attachments/assets/8e18ad69-19e1-4bc6-9ddf-a5318e3f814d)
+![image](https://github.com/user-attachments/assets/b157bf2c-475f-44bb-9fde-7026a0389da7)
 
 
 #### ✅ 로그인
